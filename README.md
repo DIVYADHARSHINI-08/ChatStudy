@@ -105,6 +105,7 @@ while True:
 ![WhatsApp Image 2024-11-03 at 13 30 52_4784c081](https://github.com/user-attachments/assets/f9fa4610-3157-4f3d-9346-6f987bccfdbb)
 
 
+
 ![WhatsApp Image 2024-11-03 at 13 30 52_bb6084c1](https://github.com/user-attachments/assets/5d611ec3-896a-423a-a519-af542ea07a3a)
 
 
